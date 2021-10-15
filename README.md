@@ -1,0 +1,2 @@
+Hi, I am Bob van de Vliet, in practice I write it as Bob Vandevliet.
+During my bachelor Industrial Product Design at the HAN in Arnhem, I specialized in plastics and the injection molding technique. In addition to my field, I have a passion for IT, especially software and web development in which I am constantly developing. I find everything that has to do with technology interesting and challenging to come up with innovative solutions. I like well-thought-out and accurately detailed functional products, from physical industrial products to everything on the web.
